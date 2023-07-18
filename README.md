@@ -1,6 +1,3 @@
-![github page banner](https://user-images.githubusercontent.com/29646709/155891996-20f68c05-fa79-4743-a0f4-2894962eb70b.png)
-
-
 ### Hey everyone! I am Pau Riosa AKA Paugrammer!
 
 🎥 Youtuber
